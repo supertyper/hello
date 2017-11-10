@@ -4,4 +4,4 @@ a new moon is raising!
 
 as i live, all will die!
 
-just give me a reason
+to the field of justice!
